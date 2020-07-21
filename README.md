@@ -6,5 +6,6 @@
 4. 来领略一下阿里的流量入口吧！欢迎您的到来！
 > 优先扫码投递更快哦：
 ![avatar](./内推二维码.png)
+![avatar](./集团二维码.png)
 
 邮箱：yinjian.myj@alibaba-inc.com
